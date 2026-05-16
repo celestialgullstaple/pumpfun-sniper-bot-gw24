@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pump.fun sniper bot with vip Executor for pump.fun sniper bot | auto-buy & simulation-mode. Featuring auto-buy and simulation-mode, it's the best choice for
 
 
 
